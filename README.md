@@ -1,1 +1,0 @@
-# thokaygelen.github.io
